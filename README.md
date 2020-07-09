@@ -3,6 +3,8 @@
 
 QQ意见反馈交流群：361165890
 
+TG群：https://t.me/joinchat/STpKkhpHIy_vIksxQDrLDQ
+
  JavGo是一个集合影片管理，影片刮削，视频处理，资源搜索等综合一体的全功能软件。
  
  ![软件界面](https://www.louimg.com/u/20200703/12160772.jpg)
