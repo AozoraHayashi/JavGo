@@ -1,7 +1,7 @@
 # JavGo
 蓝奏云下载链接：https://goyunpan.lanzous.com/b0c2eoohe 密码:fikp
 
-QQ意见反馈交流群：361165890
+2020年7月22日最新QQ意见反馈交流群：289593560
 
 TG群：https://t.me/joinchat/STpKkhpHIy_vIksxQDrLDQ
 
