@@ -3,7 +3,7 @@
 
 2020年7月22日最新QQ意见反馈交流群：289593560
 
-<a target="_blank" href="//shang.qq.com/wpa/qunwpa?idkey=7a3b4c9529aac12c3da11d17aa4ab22b809786f764761972391a43aa273f73d8&source_id=1_40001"><img border="0" src="//pub.idqqimg.com/wpa/images/group.png" alt="JavGo交流群" title="JavGo交流群"></a>
+<a target="_blank" href="//shang.qq.com/wpa/qunwpa?idkey=7a3b4c9529aac12c3da11d17aa4ab22b809786f764761972391a43aa273f73d8&source_id=1_40001"><alt="JavGo最新QQ意见反馈交流群：289593560" title="JavGo最新QQ意见反馈交流群：289593560"></a>
 
 
 TG群：https://t.me/joinchat/STpKkhpHIy_vIksxQDrLDQ
