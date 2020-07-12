@@ -3,9 +3,6 @@
 
 2020年7月22日最新QQ意见反馈交流群：289593560
 
-<a target="_blank" href="//shang.qq.com/wpa/qunwpa?idkey=7a3b4c9529aac12c3da11d17aa4ab22b809786f764761972391a43aa273f73d8&source_id=1_40001"><alt="JavGo最新QQ意见反馈交流群：289593560" title="JavGo最新QQ意见反馈交流群：289593560"></a>
-
-
 TG群：https://t.me/joinchat/STpKkhpHIy_vIksxQDrLDQ
 
  JavGo是一个集合影片管理，影片刮削，视频处理，资源搜索等综合一体的全功能软件。
