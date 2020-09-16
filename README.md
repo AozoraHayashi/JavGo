@@ -1,9 +1,9 @@
 # JavGo
 <p><a href="https://goyunpan.lanzous.com/b0c2eoohe" rel="nofollow">蓝奏云下载链接 密码:fikp</a><br>
 
-<p><a href="https://t.me/joinchat/STpKkhpHIy_vIksxQDrLDQ" rel="nofollow">TG交流群</a><br>
-
 <p><a href="https://jq.qq.com/?_wv=1027&k=gquCc7LT" rel="nofollow">QQ交流群：289593560</a><br>
+
+<p><a href="https://t.me/joinchat/STpKkhpHIy_vIksxQDrLDQ" rel="nofollow">TG交流群</a><br>
 
  JavGo是一个集合影片管理，影片刮削，视频处理，资源搜索等综合一体的全功能软件。
  
