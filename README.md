@@ -1,5 +1,5 @@
 # JavGo
-<p><a href="https://goyunpan.lanzous.com/b0c2eoohe" rel="nofollow">蓝奏云下载 密码:fikp</a><br>
+<p><a href="https://goyunpan.lanzous.com/b0c2eoohe" rel="nofollow">蓝奏云下载链接 密码:fikp</a><br>
 
 <p><a href="https://t.me/joinchat/STpKkhpHIy_vIksxQDrLDQ" rel="nofollow">TG交流群</a><br>
  
