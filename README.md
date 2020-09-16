@@ -1,9 +1,13 @@
 # JavGo
 蓝奏云下载链接：https://goyunpan.lanzous.com/b0c2eoohe 密码:fikp
 
+[url=https://goyunpan.lanzous.com/b0c2eoohe]蓝奏云下载 密码:fikp[/url]
+
 2020年7月22日最新QQ意见反馈交流群：289593560
 
 TG群：https://t.me/joinchat/STpKkhpHIy_vIksxQDrLDQ
+
+[url=https://t.me/joinchat/STpKkhpHIy_vIksxQDrLDQ]TG交流群[/url]
 
  JavGo是一个集合影片管理，影片刮削，视频处理，资源搜索等综合一体的全功能软件。
  
