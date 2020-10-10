@@ -9,6 +9,9 @@
  
  ![软件界面](https://www.louimg.com/u/20200703/12160772.jpg)
  
+ ![软件界面]( https://github.com/javgo-2020/JavGo/blob/master/%E7%95%8C%E9%9D%A2.jpg)
+
+ 
 1.影片管理：可以添加已经刮削好的影片文件夹到本软件，软件会展示海报墙，可以查看影片的nfo信息，可以直接调用本地播放器播放影片，可以对影片和影片信息做增删改查等。
 
 2.影片刮削：软件支持从javbus,jav321,javlibrary,javdb四个网站刮削日本影片信息，可选项包括nfo信息，fanart图，poster图，预览图，评论，磁力，简介等。
